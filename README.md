@@ -2,7 +2,9 @@
 ABOUT ME**
 
 Name: Calatraba, Kelvin Christian A.
+
 Course: Computer Engineering
+
 School: Technological Institute of the Philippines
 
 **INTERESTS**
