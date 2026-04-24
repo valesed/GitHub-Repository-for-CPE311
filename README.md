@@ -15,28 +15,28 @@ I also prefer games that emphasize strategy, system mechanics, and structured de
 
 **MY TOP MANGA / LIGHT NOVEL RECOMMENDATIONS**
 
-**  Natsume's Book of Friends**
+**Natsume's Book of Friends**
   
   (Author: Yuki Midorikawa | Status: Ongoing manga | Volumes: 30+)
   Other adaptations: Anime series (multiple seasons + movies)
   
-**  Overlord**
+**Overlord**
   
   (Author: Kugane Maruyama | Status: Ongoing light novel | Volumes: 16)
   Other adaptations: Manga adaptation, Anime adaptation (4 seasons + movies)
   
- ** Apocalypse Bringer Mynoghra: World Conquest with the Civilization of Ruin**
+ **Apocalypse Bringer Mynoghra: World Conquest with the Civilization of Ruin**
   
   (Author: Fehu Kazuno | Status: Ongoing light novel | Volumes: 8)
   Other adaptations: Manga adaptation
   
-**  That Time I Got Reincarnated as a Slime**
+**That Time I Got Reincarnated as a Slime**
   
   (Author: Fuse | Status: Ongoing light novel | Volumes: 20+)
   Other adaptations: Manga adaptation, Anime adaptation (multiple seasons + movies)
   
-  **I Gained a Skill Every Time I Got Exiled, and Now I Am the Strongest Across 100 Different Worlds
-  **
+  **I Gained a Skill Every Time I Got Exiled, and Now I Am the Strongest Across 100 Different Worlds**
+  
   (Author: Shirogane Kusabi | Status: Ongoing light novel | Volumes: 5+)
   Other adaptations: Manga adaptation
 
@@ -57,7 +57,7 @@ I also prefer games that emphasize strategy, system mechanics, and structured de
   (Author: TurtleMe | Status: Ongoing web novel | Chapters: 500+)
   Other adaptations: Webtoon adaptation
   
- ** Omniscient Reader's Viewpoint**
+ **Omniscient Reader's Viewpoint**
   
   (Author: singNsong | Status: Ongoing web novel | Chapters: 500+)
   Other adaptations: Webtoon adaptation
@@ -81,7 +81,7 @@ I also prefer games that emphasize strategy, system mechanics, and structured de
   
   (Developer: PUBG Studios | Genre: Battle Royale, Tactical Shooter, Survival FPS, Competitive Multiplayer)
   
- ** Delta Force**
+ **Delta Force**
   
   (Developer: NovaLogic | Genre: Tactical FPS, Military Shooter, Objective-Based Strategy, Multiplayer Combat)
   
